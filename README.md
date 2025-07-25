@@ -2,7 +2,16 @@
 Seeing help with development and partnership / Zentrix NHG: Redefining global energy access. This patent-pending project develops modular, multi-source energy generators (Industrial, Residential, Portable) with hopes to creat cutting-edge plasma transmission and true Natural Energy. Empowering decentralized, sustainable power solutions for a resilient future. Zentix is my product name and I hope one day it brings you a new way of life. Please help me with Figs a d Development 
 email: Cp32352@gmail.com 
 ---
-Set of Documents will have show 2 layers in used A.I to help me translate my work is to every day Framework and knowledge. I removed my common definitions as attempted to develop a vomplet set of douments for all walks of life 
+<img width="1024" height="1536" alt="1000015783" src="https://github.com/user-attachments/assets/71f78685-3e71-4094-913d-d06516a102ac" />
+
+<img width="1024" height="1024" alt="1000015782" src="https://github.com/user-attachments/assets/567300e3-0545-4f59-b3df-69db5726ece4" />
+
+<img width="2048" height="2048" alt="1000015789" src="https://github.com/user-attachments/assets/8674b815-95df-4b70-9ffa-7775964e5630" />
+
+![1000015816](https://github.com/user-attachments/assets/59ce3f65-a354-4646-ab90-d3153085babd)
+
+---
+Set of Documents will have 2 layers of quality i used A.I to help me translate my work is to every day Framework and knowledge. I removed my common definitions as attempted to develop a Complet set of douments for all walks of life 
 ---
 ---
 

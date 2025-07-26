@@ -1,6 +1,21 @@
-# CPs-HNG-Reality_Pack_Developer_Doc_v1.0.md
-Seeing help with development and partnership / Zentrix NHG: Redefining global energy access. This patent-pending project develops modular, multi-source energy generators (Industrial, Residential, Portable) with hopes to creat cutting-edge plasma transmission and true Natural Energy. Empowering decentralized, sustainable power solutions for a resilient future. Zentix is my product name and I hope one day it brings you a new way of life. Please help me with Figs a d Development 
-email: Cp32352@gmail.com 
+#⚡️Calling All Real-World AutoBots: Join the Zentrix Energy Mission
+---
+<img width="1024" height="1024" alt="1000015893" src="https://github.com/user-attachments/assets/d24c6b3a-54cf-4a7d-a187-93f64b93d064" />
+
+---
+![1000015896](https://github.com/user-attachments/assets/ad2a30ed-46fc-4b3f-a2ee-ed4699c935e8)
+
+
+Thank you for your time, your brain, and your belief.
+— Christopher Perry
+Inventor | Zentrix NHG | Patent-Pending Power for All
+
+
+---
+
+Let me know if you want a Kickstarter version, a PDF flyer, or a LinkedIn-optimized post next.
+
+ 
 ---
 <img width="1024" height="1536" alt="1000015783" src="https://github.com/user-attachments/assets/71f78685-3e71-4094-913d-d06516a102ac" />
 

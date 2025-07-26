@@ -6,17 +6,13 @@
 ![1000015896](https://github.com/user-attachments/assets/ad2a30ed-46fc-4b3f-a2ee-ed4699c935e8)
 
 
-Thank you for your time, your brain, and your belief.
+#Thank you for your time, your brain, and your belief.
 — Christopher Perry
 Inventor | Zentrix NHG | Patent-Pending Power for All
 
-
----
-
-Let me know if you want a Kickstarter version, a PDF flyer, or a LinkedIn-optimized post next.
-
  
 ---
+--
 <img width="1024" height="1536" alt="1000015783" src="https://github.com/user-attachments/assets/71f78685-3e71-4094-913d-d06516a102ac" />
 
 <img width="1024" height="1024" alt="1000015782" src="https://github.com/user-attachments/assets/567300e3-0545-4f59-b3df-69db5726ece4" />
